@@ -1,1 +1,1 @@
-# Rithunath G, Graphic Designer
+#1 Rithunath G
