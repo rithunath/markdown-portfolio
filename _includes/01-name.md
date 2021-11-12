@@ -1,2 +1,2 @@
 # Rithunath,CSE
-#G-tech Group of Companies
+# G-tech Group of Companies
