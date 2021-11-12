@@ -1,1 +1,1 @@
-# <h1> Rithunath G, Graphic Designer
+# Rithunath G, Graphic Designer
